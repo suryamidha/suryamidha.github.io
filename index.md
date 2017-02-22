@@ -13,12 +13,12 @@ I'm a middle schooler, podcaster, and debater. I take myself too seriously somet
 [![The iTunes page for Made for People](http://i.imgur.com/jas1H8z.jpg)](https://itunes.apple.com/us/podcast/made-for-people/id1116879925)
 
 ### Speech and Debate
-I currently participate in the highest division of competitive Lincoln Douglas high school [Speech and Debate](https://www.speechanddebate.org/). The debate accompishments I am most proud of are 
+I currently participate in the highest division of competitive Lincoln Douglas high school [Speech and Debate](https://www.speechanddebate.org/). The debate accomplishments I am most proud of are 
 
-- 1st place in novice lincoln douglas at the Harker Middle School Speech and Debate Tournament
-- Top 16 in novice lincoln douglas at the San Francisco Western JV and Novice National Championship
-- 1st place in novice lincoln douglas at the Santa Clara University Spring Philalethic Invitational
-- Top 16 in open lincoln douglas at the Santa Clara University Dempsey Cronin Invitational
+- 1st place in novice Lincoln Douglas at the Harker Middle School Speech and Debate Tournament
+- Top 16 in novice Lincoln Douglas at the San Francisco Western JV and Novice National Championship
+- 1st place in novice Lincoln Douglas at the Santa Clara University Spring Philalethic Invitational
+- Top 16 in open Lincoln Douglas at the Santa Clara University Dempsey Cronin Invitational
 
 The speech accomplishments I am most proud of are
 
