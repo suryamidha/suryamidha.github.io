@@ -8,4 +8,9 @@ I'm a middle schooler, podcaster, and debater. I take myself too seriously somet
 [Get my Speech and Debate resume](https://drive.google.com/file/d/0B8Qe8PI0xSP_TlZoLXpKWDRqQ0E/view?usp=sharing)
 
 ### Made for People
-[Made for people](https://itunes.apple.com/us/podcast/made-for-people/id1116879925) is a podcast that explores complex ideas and explains them for thoughtful and intelligent dinner table conversations. It's built on the premise that **there are no stupid questions.** I made this podcast because I felt that there was a huge group of people who were too scared to ask even the most basic questions out of fear of being though of as dumb or stupid. I felt that through the medium of a podcast, I could answer these questions in a way that people could understand in an accessible way.
+[Made for people](https://itunes.apple.com/us/podcast/made-for-people/id1116879925) is a podcast that explores complex ideas and explains them for thoughtful and intelligent dinner table conversations. It's built on the premise that **there are no stupid questions.** I made this podcast because I felt that there was a huge group of people who were too scared to ask even the most basic questions out of fear of being though of as dumb or stupid. I felt that through the medium of a podcast, I could answer these questions in a way that people could understand in an accessible way. At the end of the day, those who look down on others for not knowing something are usually the ones who don't know the answer themselves.
+
+[![The Soundcloud page for Made foro People](http://i.imgur.com/jas1H8z.jpg)](https://soundcloud.com/madeforpeople)
+
+### Speech and Debate
+I participate in Speech and Debate 
