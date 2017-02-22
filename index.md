@@ -3,6 +3,8 @@ I'm a middle schooler, podcaster, and debater. I take myself too seriously somet
 
 
 [Listen to my podcast](https://itunes.apple.com/us/podcast/made-for-people/id1116879925)
+
 [Get my general resume](https://drive.google.com/file/d/0B8Qe8PI0xSP_Qm5lQTdUWWZTOFk/view?usp=sharing)
+
 [Get my Speech and Debate resume](https://drive.google.com/file/d/0B8Qe8PI0xSP_TlZoLXpKWDRqQ0E/view?usp=sharing)
 
