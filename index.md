@@ -3,3 +3,5 @@ I'm a middle schooler, podcaster, and learner. I take myself too seriously somet
 
 
 [Listen to my podcast](https://itunes.apple.com/us/podcast/made-for-people/id1116879925)
+
+[Get my resume](https://drive.google.com/file/d/0B8Qe8PI0xSP_Qm5lQTdUWWZTOFk/view?usp=sharing)
