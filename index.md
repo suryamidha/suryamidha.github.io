@@ -1,6 +1,5 @@
 ## Nice to meet you
-I'm a middle schooler, podcaster, and debater. I take myself too seriously sometimes. Contact me on [Instagram](https://www.instagram.com/suryamidha/), [Twitter](https://twitter.com/realdonaldtrump) ([Just Kidding](https://twitter.com/suryamidha)), [Snapchat](https://www.snapchat.com/add/surya.midha), or by [email](mailto:suryamidha@gmail.com).
-
+I'm a middle schooler, podcaster, and debater. I take myself too seriously sometimes. You can find me on [Instagram](https://www.instagram.com/suryamidha/), [Twitter](https://twitter.com/realdonaldtrump) ([Just Kidding](https://twitter.com/suryamidha)), and [Snapchat](https://www.snapchat.com/add/surya.midha). Contact me by [email](mailto:suryamidha@gmail.com).
 
 [Listen to my podcast](https://itunes.apple.com/us/podcast/made-for-people/id1116879925)
 
