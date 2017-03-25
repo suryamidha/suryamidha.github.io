@@ -29,7 +29,7 @@ The speech accomplishments I am most proud of are
 #### Student Government
 I have particicpated in student government throughout my educational career. Here are my notable accomplishments:
 
-- President of Quimby Oak Middle School
+- [President of Quimby Oak Middle School](https://youtu.be/m6SQZ43vS_o)
 - President of Carolyn A. Clark Elementary School
 - Secretary of Carolyn A. Clark Elementary School
 
