@@ -23,3 +23,22 @@ The speech accomplishments I am most proud of are
 - 1st place in novice Impromptu at the Santa Clara University Dempsey Cronin Invitational
 
 [See my complete Speech and Debate resume](https://drive.google.com/file/d/0B8Qe8PI0xSP_TlZoLXpKWDRqQ0E/view?usp=sharing)
+
+### School
+
+#### Student Government
+I have particicpated in student government throughout my educational career. Here are my notable accomplishments:
+
+- President of Quimby Oak Middle School
+- President of Carolyn A. Clark Elementary School
+- Secretary of Carolyn A. Clark Elementary School
+
+#### Accomplishments
+Here are some of school accomplishments I am most proud of:
+
+- 4.0 GPA in all years (elementary and middle school)
+- Valedicatorian of Carolyn A. Clark Class of 2015
+- 99 percentile nationally on the HSPT
+- 7th grader english award at Quimby Oak Middle School
+- Best 7th grade Physics science fair project
+- Winner of 4th grade speech competition 
