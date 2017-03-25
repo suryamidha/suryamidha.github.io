@@ -1,7 +1,7 @@
 ## Nice to meet you
 I'm a 13 year old middle schooler, podcaster, debater, and [brother](http://sejalmidha.com/). I take myself too seriously sometimes. You can find me on [Instagram](https://www.instagram.com/suryamidha/), [Twitter](https://twitter.com/realdonaldtrump) ([just kidding](https://twitter.com/suryamidha)), and [Snapchat](https://www.snapchat.com/add/surya.midha). Contact me by [email](mailto:me@suryamidha.com).
 
-[Get my resume](https://drive.google.com/file/d/0B8Qe8PI0xSP_Qm5lQTdUWWZTOFk/view?usp=sharing)
+[Get my resume](resume.pdf)
 
 ### Made for People
 [Made for People](http://madeforpeople.suryamidha.com) is a podcast that explores complex ideas and explains them for thoughtful and intelligent dinner table conversations. It's built on the premise that **there are no stupid questions.** I made this podcast because I felt that there was a huge group of people who were too scared to ask even the most basic questions out of fear of being perceived as dumb or stupid. I felt that through the medium of a podcast, I could answer these questions in a way that people could understand. At the end of the day, those who look down on others for not knowing something are usually the ones who don't know the answer themselves.
