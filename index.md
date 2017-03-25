@@ -33,6 +33,11 @@ I have particicpated in student government throughout my educational career. Her
 - President of Carolyn A. Clark Elementary School
 - Secretary of Carolyn A. Clark Elementary School
 
+Other school roles have been
+
+- School Site Council Student Representative
+- District Advisory Council Student Representative
+
 #### Accomplishments
 Here are some of school accomplishments I am most proud of:
 
