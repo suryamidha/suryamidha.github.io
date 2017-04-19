@@ -60,6 +60,8 @@ I'm working on these languages:
 - Javascript
 - Swift
 
+I'm currently working on a Ruby application part of the course I am working through. You can find the unfinished code [here](https://github.com/suryamidha/upskill_saas_tutorial).
+
 ### Music
 My top five songs of all time are:
 
@@ -76,3 +78,5 @@ The songs stuck in my head right now are:
 - _Through the Wire_ - Kanye West
 - _I Kissed a Girl_ - Katy Perry
 - _Yeah_ - Usher
+
+Listen to [what I'm listening to](https://open.spotify.com/user/suryamidharocks/playlist/1FBnD0DyrysbuleGucolqh). 
