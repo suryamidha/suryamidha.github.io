@@ -69,9 +69,9 @@ My top five songs of all time are:
 4. _Here Comes the Sun_ - The Beatles
 5. _Stairway To Heaven_ - Led Zeppelin
 
-The songs stuck in my head right now are 
+The songs stuck in my head right now are:
 
-- _Redbone_ - Childish Gambino.
+- _Redbone_ - Childish Gambino
 - _Wait for the Moment_ - Vulfpeck
 - _Through the Wire_ - Kanye West
 - _I Kissed a Girl_ - Katy Perry
