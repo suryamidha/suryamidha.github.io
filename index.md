@@ -63,10 +63,10 @@ I'm working on these languages:
 ### Music
 My top five songs of all time are:
 
-1. **Bohemian Rhapsody** - Queen
-2. **Hotel California** - Eagles
-3. **All Along the Watchtower** - Jimi Hendrix
-4. **Here Comes the Sun** - The Beatles
-5. **Stairway To Heaven** - Led Zeppelin
+1. _Bohemian Rhapsody_ - Queen
+2. _Hotel California_ - Eagles
+3. _All Along the Watchtower_ - Jimi Hendrix
+4. _Here Comes the Sun_ - The Beatles
+5. _Stairway To Heaven_ - Led Zeppelin
 
 The song stuck in my head right now is **Redbone** by Childish Gambino.
