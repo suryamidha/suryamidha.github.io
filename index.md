@@ -58,14 +58,15 @@ I'm working on these languages:
 
 - Ruby and the Ruby on Rails framework
 - Javascript
+- Swift
 
 ### Music
 My top five songs of all time are:
 
-1. Bohemian Rhapsody - Queen
-2. Hotel California - Eagles
-3. All Along the Watchtower - Jimi Hendrix
-4. Here Comes the Sun - The Beatles
-5. Wait for the Moment - Vulfpeck
+1. **Bohemian Rhapsody** - Queen
+2. **Hotel California** - Eagles
+3. **All Along the Watchtower** - Jimi Hendrix
+4. **Here Comes the Sun** - The Beatles
+5. **Stairway To Heaven** - Led Zeppelin
 
-The song stuck in my head right now is Redbone by Childish Gambino.
+The song stuck in my head right now is **Redbone** by Childish Gambino.
