@@ -42,8 +42,30 @@ Other school roles have been
 Here are some of school accomplishments I am most proud of:
 
 - 4.0 GPA in all years (elementary and middle school)
-- Valedicatorian of Carolyn A. Clark Class of 2015
+- Winner of the prestigious "Evergreen Youth Award" of the Carolyn A. Clark Class of 2015
 - 99 percentile nationally on the HSPT
-- 7th grader english award at Quimby Oak Middle School
+- 7th grade english award at Quimby Oak Middle School
 - Best 7th grade Physics science fair project
-- Winner of 4th grade speech competition 
+- Winner of the 4th grade speech competition 
+
+### Coding
+I'm comfortable working with:
+
+- HTML
+- CSS
+
+I'm working on these languages:
+
+- Ruby and the Ruby on Rails framework
+- Javascript
+
+### Music
+My top five songs of all time are:
+
+1. Bohemian Rhapsody - Queen
+2. Hotel California - Eagles
+3. All Along the Watchtower - Jimi Hendrix
+4. Here Comes the Sun - The Beatles
+5. Wait for the Moment - Vulfpeck
+
+The song stuck in my head right now is Redbone by Childish Gambino.
