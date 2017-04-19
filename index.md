@@ -4,7 +4,7 @@ I'm a 13 year old middle schooler, podcaster, debater, and [brother](http://seja
 [Get my resume](https://drive.google.com/file/d/0B8Qe8PI0xSP_Qm5lQTdUWWZTOFk/view?usp=sharing)
 
 ### Made for People
-[Made for People](http://madeforpeople.suryamidha.com) is a podcast that explores complex ideas and explains them for thoughtful and intelligent dinner table conversations. It's built on the premise that **there are no stupid questions.** I made this podcast because I felt that there was a huge group of people who were too scared to ask even the most basic questions out of fear of being perceived as dumb or stupid. I felt that through the medium of a podcast, I could answer these questions in a way that people could understand. At the end of the day, those who look down on others for not knowing something are usually the ones who don't know the answer themselves.
+[Made for People](http://madeforpeople.suryamidha.com) is a podcast that explores complex ideas and explains them for thoughtful and intelligent dinner table conversations. It's built on the premise that _there are no stupid questions._ I made this podcast because I felt that there was a huge group of people who were too scared to ask even the most basic questions out of fear of being perceived as dumb or stupid. I felt that through the medium of a podcast, I could answer these questions in a way that people could understand. At the end of the day, those who look down on others for not knowing something are usually the ones who don't know the answer themselves.
 
 [![The iTunes page for Made for People](http://i.imgur.com/jas1H8z.jpg)](https://itunes.apple.com/us/podcast/made-for-people/id1116879925)
 
@@ -69,4 +69,10 @@ My top five songs of all time are:
 4. _Here Comes the Sun_ - The Beatles
 5. _Stairway To Heaven_ - Led Zeppelin
 
-The song stuck in my head right now is **Redbone** by Childish Gambino.
+The songs stuck in my head right now are 
+
+- _Redbone_ - Childish Gambino.
+- _Wait for the Moment_ - Vulfpeck
+- _Through the Wire_ - Kanye West
+- _I Kissed a Girl_ - Katy Perry
+- _Yeah_ - Usher
