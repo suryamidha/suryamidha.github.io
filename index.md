@@ -35,8 +35,8 @@ I have particicpated in student government throughout my educational career. Her
 
 Other school roles have been
 
-- School Site Council Student Representative
-- District Advisory Council Student Representative
+- School Site Council Student Representative for Quimby Oak Middle School
+- District Advisory Council Student Representative for Quimby Oak Middle School
 
 #### Accomplishments
 Here are some of school accomplishments I am most proud of:
