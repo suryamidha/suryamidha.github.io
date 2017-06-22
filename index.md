@@ -42,6 +42,7 @@ Other school roles have been
 Here are some of school accomplishments I am most proud of:
 
 - 4.0 GPA in all years (elementary and middle school)
+- Valedictorian of Quimby Oak Middle School Class of 2017
 - Winner of the prestigious "Evergreen Youth Award" of the Carolyn A. Clark Class of 2015
 - 99 percentile nationally on the HSPT
 - 7th grade english award at Quimby Oak Middle School
