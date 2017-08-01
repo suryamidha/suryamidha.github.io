@@ -1,0 +1,13 @@
+.yellow-border {
+  border: 4px solid #ffff4c;
+  border-radius: 0px;
+  padding: 4px;
+}
+
+.yellow {
+  color: #ffff4c;
+}
+
+a:hover {
+  color: #ffff4c;
+}
